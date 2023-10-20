@@ -18,6 +18,7 @@ Las ideas de este documento son :
 Para conseguir el chasis podemos concurrir a varias opciones aun que todas tengan sus ventajas y desventajas dependiendo del metodo
 
 METODO 1
+COMPRAR CHASIS
 
 
 
